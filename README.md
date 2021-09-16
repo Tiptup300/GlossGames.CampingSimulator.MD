@@ -72,13 +72,34 @@ The Character happens upon a very small 4 Wheeler meant for children. Although t
 ## Concept Art
 
 ![Photo showing the mood and colors of the game](/images/2.png)
+*Photo showing the mood and colors of the game*
+
 ![Photo showing the contours of pa valleys](/images/3.png)
+*Photo showing the contours of pa valleys*
+
 ![Photo showing an open field reselving the field area](/images/4.png)
+*Photo showing an open field reselving the field area*
+
 ![Drawing showing general simple face look of the character](/images/5.png)
+*Drawing showing general simple face look of the character*
+
 ![Photo showing concept of character finding a bridge while walking in the night](/images/6.png)
+*Photo showing concept of character finding a bridge while walking in the night*
+
 ![Photo showing concept of dream sequence of walking through hallway](/images/7.png)
+*Photo showing concept of dream sequence of walking through hallway*
+
 ![Photo showing ak-47 and how it's found](/images/8.png)
+*Photo showing ak-47 and how it's found*
+
 ![Photo showing snowy foresty area](/images/9.png)
+*Photo showing snowy foresty area*
+
 ![Photo showing valley field area](/images/10.png)
+*Photo showing valley field area*
+
 ![Photo showing the space cut out for the end game](/images/11.png)
+*Photo showing the space cut out for the end game*
+
 ![Photo showing the bright forest area. Demonstrates how inside the forest areas different elements and appear or disappear, such as the pitting in the ground, the stray dry branches around dead trees, limbed trees.](/images/12.png)
+*Photo showing the bright forest area. Demonstrates how inside the forest areas different elements and appear or disappear, such as the pitting in the ground, the stray dry branches around dead trees, limbed trees.*
